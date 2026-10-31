@@ -33,7 +33,6 @@ I believe in learning by doing, improving every day, and turning ideas into real
 
 ### 🤝 Let's Connect!
 
-- 💼 **LinkedIn:** (https://linkedin.com/in/satyendrakumar12/)
 - 📧 **Email:** (satygupta845449@gmail.com)
 - 💻 **GitHub:** (https://github.com/Satyendrakumar12)
 
